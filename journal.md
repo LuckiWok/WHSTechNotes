@@ -9,3 +9,5 @@ or evenb face legal consequences, which makes the challenge not only harmful but
   Putting metal objects into charging ports can cause sparks, fires, or even explosions. This puts everyone nerby at risk,
   not just the person doing it. Learning how to use technology safely helps protect people and keeps schools running smoothly. It also 
   teaches students to be responsible and make smart choices.
+# May 19, 2025
+Yes ma'am I couldnt be more ready for the summer. This summer Im playing college football so they should be fun.
